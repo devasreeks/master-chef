@@ -1,1 +1,1 @@
-# master-chef
+About Kadai Paneer Recipe | Paneer Recipe: A quintessential paneer specialty that can be always found on a restaurant menu and dinner parties! A sumptuous paneer dish that tops a vegetarian's list, this paneer recipe can be made dry, semi dry or in a gravy version. We have here is a semi dry paneer recipe that can be served as a main dish at a dinner party or on festivals and special occasions as well, along with a chapati, paratha or some cooked rice.
